@@ -1,4 +1,4 @@
-# 
+# updated Scripts for plants vs brainrots offers the most advanced plants vs brainrots Script, with instant win and auto-collect. Perfect for
 
 
 
